@@ -1,5 +1,5 @@
 # Disclaimer
-The following content contains harmful materials that may be harmful ot tramatizing to some audience.
+The following content contains harmful materials that may be harmful or tramatizing to some audience.
       Viewers discretion is advised.
 
 # Introduction
